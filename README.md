@@ -1,0 +1,2 @@
+# Safemode-Simple
+dIy sAfEmOdE
